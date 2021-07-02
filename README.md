@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mlj-lover,a new programmer from Wuhan,China.
-- 👀 I’m interested in 3A PC Games and computer components.
+- 👀 I’m interested in 3A PC games and computer components.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... `QQ`:2419936290,`twitter`:mlj520520
